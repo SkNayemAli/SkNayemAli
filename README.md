@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **DBMS,SQL,Back-End Development**
 
-- 👨‍💻 All of my projects are available at [https://sknayemali.github.io/sknayemaliProtfolio/](https://sknayemali.github.io/sknayemaliProtfolio/)
+- 👨‍💻 Here is My Porftfolio: [https://sknayemali.github.io/sknayemaliProtfolio/](https://sknayemali.github.io/sknayemaliProtfolio/)
 
 - 📫 How to reach me **sknayemali227@gmail.com**
 
