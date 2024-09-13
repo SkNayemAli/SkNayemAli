@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sknayemali227@gmail.com**
 
-- 📄 Know about my experiences ([[Resume](https://drive.google.com/file/d/1DfQ-BqHiauAfJ2s8xfCIFeyGF1TZcVH6/view?usp=sharing)]([[https://drive.google.com/file/d/1kvXtPtep40PWJ2cEjppJCDixE415kWlc/view](https://drive.google.com/file/d/1DfQ-BqHiauAfJ2s8xfCIFeyGF1TZcVH6/view?usp=sharing](https://drive.google.com/file/d/1DfQ-BqHiauAfJ2s8xfCIFeyGF1TZcVH6/view?usp=sharing))))
+- 📄 Know about my experiences ([[Resume](https://drive.google.com/file/d/1DfQ-BqHiauAfJ2s8xfCIFeyGF1TZcVH6/view?usp=sharing)]([[https://drive.google.com/file/d/1kvXtPtep40PWJ2cEjppJCDixE415kWlc/view](https://drive.google.com/file/d/1DfQ-BqHiauAfJ2s8xfCIFeyGF1TZcVH6/view?usp=sharing])))
 
 - ⚡ Fun fact **I am Funny**
 
